@@ -18,7 +18,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا نور عيني في سكون الليل
+> قلبي ينادي والهوى دليل
+> أشواق روحي في المدى تميل
+> (آه حبيبتي) شوقنا طويل
 > ...
 
 📄 **[View Full Lyrics →](./lyrics.txt)**
